@@ -1,5 +1,5 @@
 ###   - my readme right here is lowk broken but im too lazy to fix it so dont mind the weird parts
-
+### genuinely didnt think id have to say this but TFC FANS EXTREMELY HEAVILY DNC AND IWEC UNLESS FRIENDS PLEASE.
 <img width="1727" height="109" alt="image" src="https://github.com/user-attachments/assets/0c327b24-efba-4270-874d-c48a68a3b785" />
 <img src="https://media.discordapp.net/attachments/1402306820873261197/1482568097352253602/4e0a0980-6738-4efc-9a5b-fc3696e96a27.png?ex=69b76ca3&amp;is=69b61b23&amp;hm=98f6c3791244474a750547715815fc5793959708e86ec81bd24955a4da6648d9&amp;=&amp;format=webp&amp;quality=lossless" style="width: 2000px; height: 100 auto;"/>
 
