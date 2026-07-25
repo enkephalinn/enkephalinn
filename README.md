@@ -1,4 +1,4 @@
-### lawl giant wip dont mind if it looks weird
+
 
 <div align="center">
 <img width="2048" height="179" alt="image" src="https://github.com/user-attachments/assets/cb250fb6-214d-47b2-9aa6-d00a59b4127a" />
