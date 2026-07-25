@@ -19,5 +19,8 @@ suspected *neurodiversity* **(ocd & audhd),** pls be patient with me!1!! **basic
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ekxyqo4cchcddjvd436p4vgexq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=350b99&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=20d11a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="2048" height="179" alt="image" src="https://github.com/user-attachments/assets/1b9edcff-cbf5-4e4c-93cd-5ee8e5ed27d0" />
 <img width="480" height="230" alt="image" src="https://github.com/user-attachments/assets/ed2f09af-09ea-444d-aecb-05669e74708a" />
+<img width="480" height="230" alt="ezgif com-optimize (1)" src="https://github.com/user-attachments/assets/0cc646da-7326-451d-97c9-1f70f4bc835c" />
+
+<sup><sub>**yes both of these are mine!!**</sub></sup>
+<img width="2048" height="179" alt="image" src="https://github.com/user-attachments/assets/1b9edcff-cbf5-4e4c-93cd-5ee8e5ed27d0" />
