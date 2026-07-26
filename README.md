@@ -1,6 +1,8 @@
-
-
 <div align="center">
+
+## better viewed on desktop/pc
+
+
 <img width="2048" height="179" alt="image" src="https://github.com/user-attachments/assets/cb250fb6-214d-47b2-9aa6-d00a59b4127a" />
 <img width="725" height="410" alt="image" src="https://github.com/user-attachments/assets/bf6a12c4-539b-4812-a8c7-bc203be5989a" />
 
