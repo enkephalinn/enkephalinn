@@ -1,6 +1,6 @@
 <div align="center">
 
-## better viewed on desktop/pc
+## better viewed on desktop/pc; <img width="238" height="38" alt="image" src="https://github.com/user-attachments/assets/71d73374-639c-416b-aff9-485843ca81fb" /> on hall of media ^_^
 
 
 <img width="2048" height="179" alt="image" src="https://github.com/user-attachments/assets/cb250fb6-214d-47b2-9aa6-d00a59b4127a" />
